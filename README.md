@@ -3,6 +3,7 @@
 - 🌱 I’m currently learning How to be fast at cubing
 - 💞️ I’m looking to collaborate on MC mods
 - 📫 How to reach me vishruthappi@gmail.com
+- or my discord at F93367F#4565
 
 <!---
 enderboii829/enderboii829 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
