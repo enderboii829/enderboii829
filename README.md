@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @enderboii829
+- 👋 Hi, I’m sl33pypanda
 - 👀 I’m interested in Minecraft
 - 🌱 I’m currently learning How to be fast at cubing
 - 💞️ I’m looking to collaborate on MC mods
