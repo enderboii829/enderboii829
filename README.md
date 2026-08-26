@@ -1,7 +1,7 @@
-- 👋 Hi, I’m sl33pypanda
-- 👀 I’m interested in Minecraft
-- 🌱 I’m currently learning How to be fast at cubing
-- 💞️ I’m looking to collaborate on MC mods
+- 👋 Hi, I’m Stressedhat
+- 👀 I’m interested in Minecraft and FPS games. Also league ahem ahem
+- 🌱 I’m currently learning How to code cuz i npc
+- 💞️ I’m looking to crack oops i mean code
 - 📫 How to reach me vishruthappi@gmail.com
 - or my discord at sl3epypanda
 
